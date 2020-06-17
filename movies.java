@@ -1,1 +1,1 @@
-l like mahesh babu movies and songs also
+l like only songs
