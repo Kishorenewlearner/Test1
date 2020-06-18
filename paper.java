@@ -1,1 +1,3 @@
-New paper added
+Sakshi paper
+Eenadu paper
+Swathi paper
